@@ -7,4 +7,3 @@ Pagina de venda  https://kiwify.app/C46pAeD?afid=SYAKELg0
 
 E-Book Day Trader https://pay.kiwify.com.br/eDoVmkE?afid=SYAKELg0  
 
-https://dashboard.kiwify.com.br/marketplace?product=sPb07mAG
